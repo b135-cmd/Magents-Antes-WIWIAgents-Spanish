@@ -1,0 +1,1 @@
+BINEVEDO NUEVO USAARIOS cappas concas a un perosnaje llamado Clippy (o no) era un perosanje de word que apaprecia en tu pantaallla y ayudba en tuss documentos pues fue quitado en la llegada de windows xp pero hoy esos perosnajes haann vuelto ahoraa en Windows Mac y Linux!
